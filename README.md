@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://DIL88.github.io/rsschool-cv/
