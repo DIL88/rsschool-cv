@@ -1,1 +1,1 @@
-# https://DIL88.github.io/rsschool-cv/cv
+# https://DIL88.github.io/rsschool-cv/
